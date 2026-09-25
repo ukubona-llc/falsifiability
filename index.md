@@ -10,3 +10,7 @@
 ---
 
 Bezos & Claude share something in common!
+
+They both insist on falsifiable frameworks
+
+Absolutely no compromise on that one
