@@ -10,8 +10,8 @@
 
 ---
 
-Bezos & Claude share something in common!
+Bezos & Claude share something in common:
 
-They both insist on falsifiable frameworks
+They both insist on falsifiable frameworks!
 
-Absolutely no compromise on that one
+Absolutely no compromise on that one :)
